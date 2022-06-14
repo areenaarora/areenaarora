@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🙏🏻
 
 - 🔭 I'm a journalist, new to the data space 🗞👩🏻‍💻
 - 🌱 I'm working on: writing cleaner code and figuring out how to make data + traditional storytelling more cohesive📝
